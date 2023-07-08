@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @vanithapothireddy
+- 👀 I’m interested in dancing
+- 🌱 I’m currently learning to code
+- 💞️ I’m looking to collaborate on 
+- 📫 You can reach me via email 
